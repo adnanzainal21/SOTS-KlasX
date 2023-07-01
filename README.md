@@ -7,3 +7,19 @@ The Best studnt from SMK PANCASILA 8 SLOHOHIMO PPLG class X 2023
 
 ##### Student OF The Seasons PPLG class X 
 ##### Student OF The Week PPLG class X 
+
+
+
+# Siswa prestasi keahlian PPLG 2023 SMK Pancasila 8 Slogoohimo 
+memuat daftar iswa prestasi akhir asesmen dan siswa prestasi mingguan yang dapat beruabah kapanpun 
+DI buat agar siswa dapat bersaing menjai yang terbaik dan barsaing menjadi lebih hebat dar sebelumnya 
+
+## SOTS 
+data di peroleh dari prestasi rangking 1 selama di kelas tersebut 
+
+## SOTW 
+data di ambil dari data seeksi setiap minguan yang berkemungkinan dapat di gese satu sama lain dan sulit untuk tergeser
+
+#### Terima Kasih telah berkunjung dan sampai jumpa lagi 
+#### By Adnan
+
