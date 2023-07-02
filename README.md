@@ -22,4 +22,5 @@ data di ambil dari data seeksi setiap minguan yang berkemungkinan dapat di gese 
 
 #### Terima Kasih telah berkunjung dan sampai jumpa lagi 
 #### By Adnan
+####Tanks For You 
 
