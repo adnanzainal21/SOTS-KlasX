@@ -1,5 +1,5 @@
-## Student Of The Seasons 2023 SMK PANCASILA 8 SLOHOHIMO
-The Best studnt from SMK PANCASILA 8 SLOHOHIMO PPLG class X 2023
+## Student Of The Seasons 2023 
+The Best studnt from   PPLG class X 2023
 
 ### Spandela card
 - SOTS
@@ -10,7 +10,7 @@ The Best studnt from SMK PANCASILA 8 SLOHOHIMO PPLG class X 2023
 
 
 
-# Siswa prestasi keahlian PPLG 2023 SMK Pancasila 8 Slogoohimo 
+# Siswa prestasi keahlian PPLG 2023   
 memuat daftar iswa prestasi akhir asesmen dan siswa prestasi mingguan yang dapat beruabah kapanpun 
 DI buat agar siswa dapat bersaing menjai yang terbaik dan barsaing menjadi lebih hebat dar sebelumnya 
 
